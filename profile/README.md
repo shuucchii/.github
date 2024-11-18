@@ -3,8 +3,9 @@
 ## shuucchii's Github organisation!
 
 Welcome ∠( ᐛ 」∠)＿<br>
+self-taught artist ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚>*<br>
 ⟡ ︎ ┆fr/eng • lvl 17<br>
-⟡ ︎ ┆app : procreate
+⟡ ︎ ┆use : procreate + ipad
 
 <p align="left">
   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
